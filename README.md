@@ -1,1 +1,0 @@
-# pengumuman-snbp.snpmb.id
